@@ -4,3 +4,5 @@ Some Jokes!
   Say "one smart fellow he felt smart" fast 5 times!  See what happens!
 
   Knock Knock. Who's there? Avery! Avery who? "Avery time I come to your house we go through this!" "Avery cloud has a silver lining." "Avery thing but the kitchen sink."
+
+a white horse rolled in the mud!!!
